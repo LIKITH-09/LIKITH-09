@@ -4,7 +4,7 @@
 
 📍 College Park, MD  
 ✉️ likith.goshike@gmail.com  
-🔗 [LinkedIn](YOUR-LINKEDIN-URL)
+🔗 [LinkedIn](https://www.linkedin.com/in/likith-goshike-493665233/)
 
 ---
 
